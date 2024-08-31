@@ -1,0 +1,3 @@
+- 👋 Hi, we are furnzero, a team designing a future for zero furniture waste.
+- 👀 We are interested in circularity, sustainability and reducing furniture waste
+- 💞️ We are looking to collaborate with furniture manufacturers, designers and material suppliers.
